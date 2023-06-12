@@ -1,0 +1,1 @@
+# stempedia-task-6
